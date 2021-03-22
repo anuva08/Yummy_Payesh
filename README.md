@@ -1,0 +1,1 @@
+About Payesh Recipe: Payesh is a Bengali version of kheer. Rice and milk pudding flavored with cardamom, dry fruits and a sprinkle of rose water. A delicious Indian dessert to relish during the festive season of Durga Puja or Diwali.
